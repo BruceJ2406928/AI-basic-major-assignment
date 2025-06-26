@@ -1,0 +1,1 @@
+# AI-basic-major-assignment
